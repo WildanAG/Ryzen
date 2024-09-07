@@ -1,1 +1,0 @@
-# Ryzen ihihiihihi
